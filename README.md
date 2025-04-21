@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **discord.gg/MwXyn3Ya9F**
+- 📫 How to reach me *karolmn9000@proton.me**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
